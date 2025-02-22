@@ -1,1 +1,1 @@
-# Party on, Wayne!
+For wonder, humor, and fun.
